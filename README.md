@@ -1,1 +1,1 @@
-# Sikka-Coaching-Institute
+# Coaching-Institute
